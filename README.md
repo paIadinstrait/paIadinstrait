@@ -1,7 +1,5 @@
-<p>
-⠀|-/   ⠀⠀⠀⠀⠀  <strong>05 . 14 . 25**</strong>⠀⠀⠀⠀⠀      seeing them live :]
-<text style="color: red"></text>
-</p>
+
+⠀|-/   ⠀⠀⠀⠀⠀  <strong>05 . 14 . 25</strong>⠀⠀⠀⠀⠀      seeing them live :]
 
 
 
