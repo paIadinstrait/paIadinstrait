@@ -1,5 +1,5 @@
 <p>
-⠀|-/   ⠀⠀⠀⠀⠀  **05 . 14 . 25**     ⠀⠀⠀⠀⠀      seeing them live :]
+⠀|-/   ⠀⠀⠀⠀⠀  <strong>05 . 14 . 25**</strong>⠀⠀⠀⠀⠀      seeing them live :]
 <text style="color: red"></text>
 </p>
 
