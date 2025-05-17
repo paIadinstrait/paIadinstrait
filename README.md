@@ -1,5 +1,5 @@
 
-⠀|-/   ⠀⠀⠀⠀⠀  <strong>05 . 14 . 25</strong>⠀⠀⠀⠀⠀      seeing them live :]
+⠀|-/   ⠀⠀⠀⠀⠀  <strong>05 . 14 . 25</strong>⠀⠀⠀⠀⠀      <strong>SAW THEM LIVE!!!!!!!!!!!! YAAAAAAAAAAY!</strong>
 
 
 
