@@ -1,16 +1,17 @@
-## Hi there 👋
+<p align="center">
+ ${\textsf{\color{#873132}❝ i would swim the paladin strait, without any floatation . . just a glimpse of you on the shoreline . ❞}}$
+  </p>  
+  </p>  
+<p align="center">
+  <img src="https://i.postimg.cc/qvyDD23V/Untitled142-20250904192125.png" width="450">
+</p>  
+<p align="center">
+  ${\textsf{\color{#e6413b}clancy ør tyler !}}$
+</p>  
 
-<!--
-**paIadinstrait/paIadinstrait** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+${\textsf{\color{#fde61e}- masc terms + cat themed neøs ! !}}$
+</p>    
+<p align="center">
+ ${\textsf{\color{#d2cfbd}- system co - host , paraphilia holder . clancy introject + trench albumtive . anti censorship ! !}}$
+</p>   
