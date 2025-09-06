@@ -13,5 +13,5 @@
 ${\textsf{\color{#fde61e}- masc terms + cat themed neøs ! !}}$
 </p>    
 <p align="center">
- ${\textsf{\color{#d2cfbd}- system co - host , paraphilia holder . clancy introject + trench albumtive . anti censorship ! !}}$
+ ${\textsf{\color{#d2cfbd}- system co - host , para holder . clancy introject + trench albumtive . anti censorship ! !}}$
 </p>   
